@@ -1,8 +1,9 @@
-- 👋 Hi, I’m @aka-ASHWINeyy
+- 👋 Hi, I’m ASHWIN KUMAR A -> @aka-ASHWINeyy
+- ✍ I am a CYBER SECURITY STUDENT :)
 - 💪 I go to gym 🗿
 - 👀 I’m interested in football and aesthetics
 - 🥊 I’m currently learning how to fight like a boxer and a MMA fighter
-- 💞️ I’m looking to collaborate on literally nothing i like to work on my own 
+- 💞️ I like to work on developing my new skill
 - 📫 How to reach me --> sadly you cant as i am busy saving the world
-- 😄 Pronouns: I am a FOOOKING MALE🧬
+- 😄 Pronouns: I am a MALE🧬
 - ⚡ Fun fact: I AM BATMAN 🦇🦇🦇
